@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AzaleaSh
+- 😄 Pronouns: She/Her
+- 👀 I’m interested in Astronomy and Physics
+- 🌱 I’m currently working on data analysis in astrophysics with Python
+- 📫 azaleahazel@gmail.com
+- ⚡ Fun fact: I'm a vegetarian!
+- ✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨
