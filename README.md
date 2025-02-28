@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @AzaleaSh
 - 😄 Pronouns: She/Her
 - 👀 I’m interested in Astronomy and Physics
-- 🌱 I’m currently at Northwestern's REACH program working on Astronomy and Physics.
 - 📫 azaleahazel@gmail.com
 - ⚡ Fun fact: I'm a vegetarian!
 - ✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨
