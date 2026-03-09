@@ -1,9 +1,10 @@
-Hi, I’m AzaleaSh, I use She/Her pronouns.
+Hi, I am Azalea [She/Her]
 
-I am a graduating senior at Sycamore High School and an upcoming freshman at the University of Illinois, Urbana-Champaign at Granger Engineering. I am very interested in Astrophysics so of course my GitHub models it.
+I am a freshman at the University of Illinois, Urbana-Champaign at Grainger Engineering. I'm interested in the intersection of Electrical Engineering and Astrophysics.
+
 
 My Github acts as my personal library, which is essentially a storage of projects that I have made over time.
 
-I can be contacted at azaleahazel@gmail.com
+I can be contacted at azaleas2@illinois.edu
 
 Shoot for the stars!
